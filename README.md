@@ -1,5 +1,5 @@
 # 💫 About Me:
-A Computer Engineering student learning how things around me made it function and work.
+A Computer Engineering student who is always curious on how things around me work.
 
 
 ## 🌐 Socials:
